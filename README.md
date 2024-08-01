@@ -1,4 +1,3 @@
-
-![](https://i.giphy.com/media/v1.Y2lkPTc5MGI3NjExbjJlZmc0cXNtNHZ3MDFzM3djZTFmc3FkeWp4ZTcyeThwM290YjRmNSZlcD12MV9pbnRlcm5hbF9naWZfYnlfaWQmY3Q9Zw/2pLKKJ5WRQ4Rsbi05f/giphy-downsized-large.gif)
+![](https://i.giphy.com/media/v1.Y2lkPTc5MGI3NjExaTRzdGVnN2VvemE4eGUwbGhhcncxN2J5NzV4MmNhYTljMWd5Zm1hNyZlcD12MV9pbnRlcm5hbF9naWZfYnlfaWQmY3Q9Zw/l0HlVV6usFV4VzOPC/giphy.gif)
 
 # moniquevely
